@@ -123,8 +123,8 @@ We love contributions! To become a part of this legendary journey, follow these 
 ## 💬 **Contact**
 
 For further details or queries about Ticket #3765, reach out to us:
-- Email: [support@blowfishverification.com](mailto:support@blowfishverification.com)
-- Twitter: [@DogeJonesInd](https://twitter.com/DogeJonesInd)
+- Email: [djiwhale@gmail.com](mailto:djiwhale@gmail.com)
+- Twitter: [@DogeJonesIndustrialDJI](https://twitter.com/DogeJonesDJI)
 
 **Don’t forget to visit [Doge Jones Industrial](https://dogejonesindustrial.com) for more updates and insights!**
 
